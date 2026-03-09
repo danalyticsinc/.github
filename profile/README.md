@@ -2,7 +2,7 @@
 
 <p align="center">
   <strong>Global IT Services · Staff Augmentation · AI-Powered Solutions</strong><br/>
-  Alpharetta, GA · Minneapolis, MN
+
 </p>
 
 <p align="center">
